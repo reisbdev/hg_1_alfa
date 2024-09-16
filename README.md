@@ -2,5 +2,5 @@
 
 Reinaldo Sanchez - Valencia (alfa)
 Antonio Lopez - Valencia (bravo)
-Antonieta Fermenar - (charlie)
+Jesus Tarifa - (charlie)
 David Tarifa - Barquisimeto (delta)
